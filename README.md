@@ -19,3 +19,5 @@ What’s waiting for you inside?
 ⏳ The invite link will be disabled as soon as today’s last spots fill up. Don't miss out on the sidelines while everyone else takes advantage.
 👉 Tap the link and join now:
 https://chat.whatsapp.com/IZvgE70O2JU1Vs2uaKQbh9
+<img width="1024" height="1024" alt="FOTO DEL GRUPO DE WUAHSAPP" src="https://github.com/user-attachments/assets/7d3c87e4-be57-4c35-b7ae-41e12a8348be" />
+
